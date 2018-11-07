@@ -17,6 +17,9 @@ And even then, local residents say, to go north of 86th was still to enter a wor
 
 Although the German flavor of 86th Street still persists in places like Karl Ehmer's butcher shop and the Bremen House, where German records, newspapers and traditional Christmas stollens are still found, the area to the north is in transition somewhere between its old middle-European feeling and some new and as yet not fully defined character. Many older small stores on the avenues have closed, and many replacements have fared no better, having bet too soon on what the new 90's will bring.
 
+![Picture Title](../images/nameOfImage.jpg)
+
+
 ''It's been like a revolving door lately,'' said Doug Wellman, a 31-year old flight attendant who has lived in the area for eight years. ''Places come and go.''
 
 It is on the avenues - particularly First, Second and Third - that the metamorphosis is most visible. The new buildings are concentrated there, as are the new restaurants, bars and boutiques. Local institutions like Elaine's, at 88th Street and Second, and the No Name Pub, at 87th Street on Second, rub shoulders with newer spots like Hanratty's jazz club at 92d and Second and Diane's restaurant at 88th and York Avenue.
@@ -25,10 +28,15 @@ But the cross streets have not been untouched. On many blocks, tired-looking fiv
 
 ''Everything is changing,'' said Joseph Liota, a 75-year-old retired food-service worker who has lived in the neighborhood for 45 years. Mr. Liota, who lives with his wife, Christina, on $400 a month in Social Security payments, believes that the rapid changes ''are good for the neighborhood - but I'm not sure if they're good for the people.''
 
+![Picture Title](../images/nameOfImage.jpg)
+
+
 A major issue in Upper Yorkville these days, for both Community Board 8, which covers the entire Upper East Side, and the City Planning Commission, is the social effect of the new housing - primarily high-rise condominium projects, many with one-bedroom apartments selling for $200,000 or more.
 In a community with substantial numbers of elderly and low-income residents, some community leaders fear rising property values may induce landlords to harass rent-regulated tenants out of their apartments, and that the high-rises will overwhelm the mostly low-rise character of the community.
 
 The extent of the changes is even greater considering the small area and the number of residents and households it now contains. According to the Department of City Planning, there were 16,724 households and 31,144 residents in Upper Yorkville in 1980, the last year for which figures are available. Although those numbers have been rising steadily, community leaders say the real changes will come with the first new condominium buildings just now beginning to be occupied. Good transportation - the Lexington Avenue IRT subway, with stops at 86th and 96th Streets, and avenue and crosstown bus lines - also encourages growth.
+
+![Picture Title](../images/nameOfImage.jpg)
 
 ''Second Avenue is going to be a mini-Columbus Avenue in two years,'' said Sherry Cornachio, a sales associate at Brookside-Cedar Real Estate, which opened about a year ago on 90th Street just off Second. ''I just hope the neighborhood doesn't lose out in the process.''
 
